@@ -1,5 +1,5 @@
 - hi im @itsmuffinverse, or u can call me muffin :D
-- im interested in coding, drawing, minecraft, and i love llamas :]
+- im interested in drawing, minecraft, and i love llamas :]
 - im here because i can
 
 
